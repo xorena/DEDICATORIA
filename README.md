@@ -1,2 +1,2 @@
 # DEDICATORIA
-DED
+DE
